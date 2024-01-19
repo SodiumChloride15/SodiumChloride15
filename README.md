@@ -1,0 +1,7 @@
+-  Hi, I’m @SodiumChloride15
+-  I’m interested in fantasy concept design and coding 3d games, but I am quite new to coding so advice would be nice! ^_^
+-  I’m currently learning Javascript and creature/human anatomy.
+-  I’m looking to collaborate on whoever needs a simple fantasy creature design for their game. How you can credit me: ZapzzEngineer or Sodium_Chloride
+-  How to reach me: nelsonc@tisweb.net
+-  Pronouns: im a dude so he him i guess
+- ⚡ Fun fact: Im in Japan rn
